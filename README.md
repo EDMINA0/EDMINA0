@@ -1,3 +1,3 @@
 <p align="center">
-  <img src="#BLEACH 有難う - 杏那のイラスト - pixiv.jpg" width="100%">
+  <img src="BLEACH_ THOUSAND-YEAR BLOOD WAR-THE CONFLICT.jpg" width="100%">
 </p>
