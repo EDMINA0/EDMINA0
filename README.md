@@ -1,3 +1,3 @@
 <p align="center">
-  <img src="76983474878101988.jpg" width="100%">
+  <img src="#BLEACH 有難う - 杏那のイラスト - pixiv.jpg" width="100%">
 </p>
